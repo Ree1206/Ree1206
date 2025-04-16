@@ -1,9 +1,9 @@
-- 👋 Hi, I’m Cesy Criss
+- 👋 Hi, I’m Cesaria Majiya
 - 👀 I’m interested in making new friends, learning new ideas especially the ones that are Tech related.
 - 🌱 I’m currently taking a Bachelor Degree of Science in Business Infornmation and Communication Technology at University of Dar es Salaam.
 - 💞️ I’m looking to collaborate on different social matters that motivates the present generation into the tech world.
 - 📫 You can find me through different social media platforms like:-
-- linkedIn @Cesy Criss
+- linkedIn @Cesaria Majiya
 - Instagram @ReeGraphics
 - Facebook @Ria Criss
 - 😄 Pronouns: she/her
